@@ -9,7 +9,7 @@ Meu nome é Marcelo Paludetto
 
 ### Você pode entrar em contato comigo :mailbox
 
-paludettomarcelo@gmail.com
+mariaeduardadeandradelima655@gmail.com
 
 @marcelopaludetto
 
